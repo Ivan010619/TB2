@@ -1,1 +1,21 @@
-# TB2
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20120.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20121.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20122.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20123.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20124.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20125-end-of-season-4.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20126.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20127.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20128.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20129.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20130.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20131.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20132.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20133.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20134.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20135.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20136.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20137.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20138.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20139.cbz
+https://github.com/Ivan010619/TB2/raw/refs/heads/main/Chapter%20140.cbz
